@@ -6,3 +6,13 @@
 
 Yoga Gallery:
 ![Ushtrasana variation](image.png)
+**Ushtrasana variation**
+
+![Eye rotation](image-1.png)
+**Eye rotation**
+
+![Swarga Dvijasana](image-2.png)
+**Swarga Dvijasana**
+
+![Baddha Hastha Padmasana](image-3.png)
+**Baddha Hastha Padmasana**
