@@ -16,3 +16,18 @@ Yoga Gallery:
 
 ![Baddha Hastha Padmasana](image-3.png)
 **Baddha Hastha Padmasana**
+
+![Mermaid pose / Eka Pada Rajakapotasana](image-4.png)
+**Mermaid pose / Eka Pada Rajakapotasana**
+
+![Shivasana](image-5.png)
+**Shivasana**
+
+![Yoganidrasana](image-6.png)
+**Yoganidrasana**
+
+![Eka Pada Shirshasana](image-7.png)
+**Eka Pada Shirshasana**
+
+![Vishwamitrasana](image-8.png)
+**Vishwamitrasana**
