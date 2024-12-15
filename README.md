@@ -4,6 +4,7 @@
 - Light on Yoga:
   - https://mantrayogameditation.org/wp-content/uploads/2019/12/Light-on-Yoga_-The-Bible-of-Modern-Yoga-PDFDrive.com-.pdf
   - https://en.wikipedia.org/wiki/Light_on_Yoga
+  - https://yogabog.com/sites/default/files/files/Iyengar_B_K_S__The_Illustrated_Light_On_Yoga.pdf
 
 
 
