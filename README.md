@@ -8,7 +8,8 @@
 
 
 Insta Yoga Gallery:
-https://www.instagram.com/p/DDBld0Pv3tx/?utm_source=ig_web_copy_link
+- https://www.instagram.com/p/DDBld0Pv3tx/?utm_source=ig_web_copy_link
+- https://www.instagram.com/p/DIs953tzwKm/?utm_source=ig_web_copy_link&igsh=MzRlODBiNWFlZA==
 
 
 Yoga Gallery:
