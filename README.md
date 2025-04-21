@@ -7,6 +7,9 @@
   - https://yogabog.com/sites/default/files/files/Iyengar_B_K_S__The_Illustrated_Light_On_Yoga.pdf
 
 
+Insta Yoga Gallery:
+https://www.instagram.com/p/DDBld0Pv3tx/?utm_source=ig_web_copy_link
+
 
 Yoga Gallery:
 ![Ushtrasana variation](image.png)
